@@ -1,1 +1,1 @@
-<h1>JININFRA DX사업그룹 김규민 사운입니다.</h1>
+<h1>JININFRA DX사업그룹 김규민 사원입니다.</h1>
